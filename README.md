@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NTCOfficial5811
+- 👀 I’m interested in game development, minecraft, guitar and writing books
+- 🌱 I’m currently learning Python and Lua
+- 📫 How to reach me Discord: nexttechcreations
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I also do 3D Model Making in Blender
